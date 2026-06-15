@@ -1,2 +1,0 @@
-# South-Korea-Top50-Comeback-Momentum-Analysis
-Comeback Momentum, Chart Re-Entry and Fandom Intensity Analysis of South Korea Top 50 Playlist
